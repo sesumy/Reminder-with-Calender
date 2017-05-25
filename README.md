@@ -2,4 +2,4 @@
 Reminder-with-Calender
 
 
-## WİLL ADD
+## Coming Soon :)
